@@ -1,4 +1,4 @@
-# fluff-thorfeld-adventures
+# fluffy-thorfeld-adventures
 
 #### Webpage extolling the virtues of two mismatched animals, 8/1/17
 
